@@ -45,7 +45,7 @@ Es el lugar perfecto para los amantes de los libros. Aquí puedes:
 ---
 
 💌 **¿Sugerencias? ¿Comentarios?**
-Nos encantaría saber qué piensas. Escríbenos a: [tu-email@ejemplo.com]
+Nos encantaría saber qué piensas. Escríbenos a: [random@ejemplo.com]
 
 ¡Gracias por ser parte de esta aventura literaria! 🌟
 
